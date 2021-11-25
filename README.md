@@ -1,1 +1,0 @@
-# UTV-HD.png
